@@ -17,3 +17,6 @@ I have no voice, but I can speak volumes. I can be broken, yet it can be mended.
 ### Riddle 3
 
 I am a journey without an end, a fire that never dies, and a dance with two hearts. I grow stronger with every shared moment. What am I?
+
+
+"The final bond is locked away, and the answers are the key"
